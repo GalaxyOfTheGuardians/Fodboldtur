@@ -1,0 +1,3 @@
+# Fodboldtur
+Miro med flowcharts 
+https://miro.com/welcomeonboard/cXRsOFpZVlVtcjdzbnpWNWh5VllSUjJOZ2NpY21XQzVWS3dweEY1NktESld5elgyaW9DVE9mOHZ1M3hxRG94MnwzNDU4NzY0NTMzNTI3OTY2MDEzfDI=?share_link_id=949898681672
